@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @berth9999
-- 👀 I’m interested in Rickenbacker's, cat's and bicycle's.
+- 👀 I’m interested in Rickenbacker's, Unix/Linux, cat's, bicycle's and Motörhead.
